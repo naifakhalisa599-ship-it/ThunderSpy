@@ -1,2 +1,1 @@
-# jackyshoudt
-bersosialisasi
+
